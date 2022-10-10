@@ -1,6 +1,6 @@
 **[Rsschool-cv]()**
 
-# **Badri Zhgent**
+# **Badri Zhgenti**
 
 ## Cources
 
